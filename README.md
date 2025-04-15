@@ -27,3 +27,4 @@ Note: *If you use other copy-cat 3.5 TFT Display, you need to add into orangepiE
 ![z6506530914409_d24a184392dd60ac50f3587694f7b38e](https://github.com/user-attachments/assets/3307d79a-a2d6-4ebe-ab30-4a0a6185ba42)
 ![z6506530914643_1c04a1ab2b3cc415c5a6ba0378110fed](https://github.com/user-attachments/assets/f225cab7-e509-414a-996a-bf150365dca0)
 ![z6506530912370_e5b43f08ce25550f3cca35585af400f2](https://github.com/user-attachments/assets/a749e7c7-7b33-4397-89a0-4ec1f601add4)
+![6c2f161710d3a38dfac2](https://github.com/user-attachments/assets/55e09b96-ab79-4176-95ea-a1f2ad1a8308)
